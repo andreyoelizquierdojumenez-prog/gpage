@@ -1,1 +1,2 @@
-Nombre grado y grupo
+IZQUIERDO JIMENEZ ANDRE YOEL
+2AVPr
